@@ -4,6 +4,6 @@
 - 💞️ Pai aqui ta ajudando a escola no time de volley mt poggers
 - 📫 se quiser entrar em contato com a firma o meu insta eh @erichapenas se não quiser você
 - 👨 EU: Sabia que os pombos morrem durante o sexo?
-- ELA: Não, sério?
+- 👩 ELA: Não, sério?
 - 👨 EU: Porque o ultimo que eu meti o pau morreu...
 - https://www.youtube.com/watch?v=5_72ryV_br8

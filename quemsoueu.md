@@ -1,4 +1,4 @@
-- 👋 Olá meu confrade meu nome é Erich do apelido Pijas4i20
+- 👋 Olá meu confrade meu nome é #1 Erich- do apelido Pijas4i20
 - 👀 Curto jogar um Volleyzinho de cria e lansar a braba em uns games ai
 - 🌱 To estudando escola já faz 80 anos
 - 💞️ Pai aqui ta ajudando a escola no time de volley mt poggers
